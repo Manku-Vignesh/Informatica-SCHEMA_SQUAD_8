@@ -1,0 +1,1 @@
+# Informatica-SCHEMA_SQUAD_8
